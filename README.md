@@ -1,4 +1,4 @@
-<div align="center"><a href="https://discord.gg"><img alt="criszhuynh." src=""></a></div>
+<div align="center"><a href="https://discord.gg"><img alt="criszhuynh." src="https://i.imgur.com/Jxir9XD.gif"></a></div>
 
 ---
 
